@@ -8,7 +8,7 @@ ya no tomo tanto,</br>
 lo de inhalar pintura lo he dejado,</br>
 aunque me encata el limpiador de zapatos,</br>
 el alcohol lo iba mezclando,</br>
-el anis de mi,</br>
+el anis, de mi,</br>
 un demonio ha sacado.</br>
 De todo esto a nada,</br>
 aunque me queda el tabaco.</br>
