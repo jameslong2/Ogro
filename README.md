@@ -13,7 +13,7 @@ un demonio ha sacado.</br>
 De todo esto a nada,</br>
 aunque me queda el tabaco.</br>
 </br>
-El ansia viene asi que cuidado,</br>
+El ansia viene, asi que cuidado,</br>
 pon tus obejas a buen recaudo,</br>
 que son la doce y de caza salgo.</br>
 Pretendes ofrecerle a esta fiera pasto,</br>
